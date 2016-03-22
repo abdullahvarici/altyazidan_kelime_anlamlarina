@@ -1,0 +1,1 @@
+# altyaz-dan-kelime-anlamlar-na
